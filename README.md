@@ -1,6 +1,6 @@
-# 💫 About Me:
+# 💫 About Me:pelajar amatir,diam menyusun logika, bergerak error semua
 <br>
-
+pesan:jangan lupa bernafas
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/ccancerboys?utm_source=ig_web_button_share_sheet&igsh=ZDNlZDc0MzIxNw==) 
